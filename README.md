@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AFCYT
+- 👀 I’m interested in air
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me afcytx@gmail.com
