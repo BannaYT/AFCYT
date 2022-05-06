@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AFCYT
-- 👀 I’m interested in air
-- 🌱 I’m currently learning nothing
+- 👀 I’m interested in gaming and now coding stuff :p
+- 🌱 I’m currently learning how to code
 - 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me afcytx@gmail.com
+- 📫 do not try to reach me with any email because I won't respond
